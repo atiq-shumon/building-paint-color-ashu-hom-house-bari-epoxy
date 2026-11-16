@@ -4,4 +4,4 @@
 
 ### Outside wall weather coat.
 
-## Primer + putty+ plastic paint
+## Inside wall : (best) Primer + putty+ plastic paint
