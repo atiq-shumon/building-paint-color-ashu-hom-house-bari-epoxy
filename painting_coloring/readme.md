@@ -5,3 +5,5 @@
 ### Outside wall weather coat.
 
 ## Inside wall : (best) Primer + putty+ plastic paint
+
+- with sealer , use GUM
